@@ -1,0 +1,1 @@
+# r_d_s_d_entorno
